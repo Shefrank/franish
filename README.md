@@ -1,2 +1,2 @@
 # franish
-franish
+study in loyola college
